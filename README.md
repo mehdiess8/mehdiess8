@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **mehdi8.ess@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://www.linkedin.com/in/mehdi-essoussi/</h3>
 <p align="left">
 </p>
 
